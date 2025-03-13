@@ -1,2 +1,2 @@
-Link to trailer: https://drive.google.com/file/d/19RlJa6UIgbkS8-ziWlkqlxywA7zUqJL7/view?usp=sharing
+Link to trailer: https://drive.google.com/file/d/19RlJa6UIgbkS8-ziWlkqlxywA7zUqJL7/view?usp=sharing \n
 Full game walkthrough: https://drive.google.com/file/d/1jyzCjVRv_Vu_bzevod9NCA12VSwaOAcF/view?usp=drive_link
